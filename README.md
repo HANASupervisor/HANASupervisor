@@ -42,7 +42,7 @@ Explored integration opportunities for real-time usage in in-home therapy device
 ## 📫 Let's Connect!
 - **Email**: [sps07040@gmail.com](mailto:sps07040@gmail.com)
 - **LinkedIn**: [Your LinkedIn Profile](https://linkedin.com/in/yourprofile) ## coming soon
-- **Website/Portfolio**: [YourWebsite.com](https://cafe.naver.com/bdaaseda4)
+- **Website/Portfolio**: [https://cafe.naver.com/bdaaseda4](https://cafe.naver.com/bdaaseda4)
 
 ---
 
